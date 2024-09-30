@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ritik.rai.iitv@gmail.com**
 
-- 📄 Find my resume [https://drive.google.com/file/d/1oazTVDvMZjAOHbIAeV9VeWnL8-iyqeT_/view?usp=sharing](https://drive.google.com/file/d/1oazTVDvMZjAOHbIAeV9VeWnL8-iyqeT_/view?usp=sharing)
+- 📄 Find my resume [here](https://drive.google.com/file/d/1oazTVDvMZjAOHbIAeV9VeWnL8-iyqeT_/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
