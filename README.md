@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **React and Next.js**
 
-- 📫 How to reach me **ritik.rai.iitv@gmail.com**
+- 📫 How to reach me **rairitik950@gmail.com**
 
 - 📄 Find my resume [here](https://drive.google.com/file/d/1oazTVDvMZjAOHbIAeV9VeWnL8-iyqeT_/view?usp=sharing)
 
